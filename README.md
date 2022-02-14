@@ -2,7 +2,7 @@
 ## Sobre mim
 
 > * 28
-> * Software Engineer
+> * iOS Developer, Mobile enthusiastic
 
 ## Interesses e Atuações
 
